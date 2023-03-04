@@ -1,6 +1,6 @@
 ## Street Lavender
 [回到主页](https://boheme130.github.io/Fiction.git.io/) <br>
-![avatar](https://i.ytimg.com/vi/adb6oCUqMtk/maxresdefault.jpg)
+![avatar](https://i.ibb.co/KbgqTzs/IMG-3545.jpg)
 <br/>
 <br/>
 
